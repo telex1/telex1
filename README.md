@@ -1,2 +1,2 @@
 Aspiring programmer and engineer.
-Telexsound@gmail.com
+telexsound@gmail.com
